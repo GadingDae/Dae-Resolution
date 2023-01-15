@@ -1,0 +1,2 @@
+# Dae-Resolution
+Fullstack development 
