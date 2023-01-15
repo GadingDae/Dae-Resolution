@@ -1,2 +1,2 @@
 # Dae-Resolution
-Fullstack development 
+Nothing
