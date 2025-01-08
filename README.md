@@ -1,2 +1,6 @@
-# Dae-Resolution
-Nothing
+# Good Dae Mate !!!
+
+
+
+
+
